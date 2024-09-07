@@ -20,3 +20,11 @@ I have gradually transformed the contents of this book into a mind network diagr
 Original intention: To carry on the legacy of the past noble knowledge
 
 E-mail: hanliang0@163.com
+
+
+![image](https://github.com/user-attachments/assets/bf0ce404-3317-47e7-b14d-13109752a659)
+
+![image](https://github.com/user-attachments/assets/cee31150-bc17-444f-a24e-c31d9358caf7)
+
+
+
