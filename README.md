@@ -18,3 +18,5 @@ I have gradually transformed the contents of this book into a mind network diagr
 
 
 Original intention: To carry on the legacy of the past noble knowledge
+
+E-mail: hanliang0@163.com
