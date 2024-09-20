@@ -19,6 +19,9 @@ I have gradually transformed the contents of this book into a mind network diagr
 
 Original intention: To carry on the legacy of the past noble knowledge
 
+The principles of Traditional Chinese Medicine are rooted in the ancient theories of the Hetu and Luoshu, serving as a remedy for all problems. It is hoped that insightful individuals can apply these principles by analogy to address interpersonal relationships, govern nations and societies, and resolve global issues.
+
+
 E-mail: hanliang0@163.com
 
 
